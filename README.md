@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/baonguyen2002/](https://github.com/baonguyen2002/)
 
-- 📫 How to reach me **nb02122002@gmail.com**
+- 📫 How to reach me **baonguyenvangia2002@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
